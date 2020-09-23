@@ -1,1 +1,12 @@
 # how-effective-is-the-local-rehab-for-drug-addiction
+The question of how effective is the local rehab for drug addiction can be a difficult one to answer. There are so many variables that can be considered in determining an accurate answer to this question that it can be almost impossible to give an accurate answer. What is true and what is false, and why is the local rehab the best for your needs. These are just some of the factors that should be considered when deciding what type of rehab to go with.
+
+The best type of rehab that you will ever go to will be one that has a staff that is specifically trained to work with recovering addicts. In order for the staff at the local rehab to be effective, they must be well-trained and experienced. This means that not only does the person who is prescribing the medication need to be knowledgeable about the treatment that is taking place, but the person who work with the addicted person also needs to know about the patient's history. It is important that all these staff members are aware of one another in order for them to be effective.
+
+If the rehab is not fully staffed, it is important that you are able to get a good understanding of the recovery rate that is taking place. You need to be able to see the numbers for both the patients that have completed the rehabilitation and the ones that are still in rehab.
+
+Addiction specialists are also very important. When a person is seeking the help of a professional such as someone who has worked with addicts in the past, they will be better able to determine if a rehabilitation center is going to be a successful one. You do not want to put your health or the health of your family in jeopardy by signing on with a program that does not have a team of professionals working with it.
+
+Finally, you want to know what type of treatments are being used, whether it is an outpatient program a residential program, or a combination of both. The type of treatment that is used will ultimately depend on the individual who is seeking treatment. Your primary focus should be on getting the addict to a point where he or she can live their life without addiction, and not on keeping them in the facility.
+
+You will find that knowing these three things about the local rehab is important in determining if the rehab you are considering is the right one for you and your family. Knowing how effective the local rehab is will help you make a decision that will make a big difference in the outcome that you are looking for.
