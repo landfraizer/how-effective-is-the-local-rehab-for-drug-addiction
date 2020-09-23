@@ -7,6 +7,7 @@ If the rehab is not fully staffed, it is important that you are able to get a go
 
 Addiction specialists are also very important. When a person is seeking the help of a professional such as someone who has worked with addicts in the past, they will be better able to determine if a rehabilitation center is going to be a successful one. You do not want to put your health or the health of your family in jeopardy by signing on with a program that does not have a team of professionals working with it.
 
-Finally, you want to know what type of treatments are being used, whether it is an outpatient program a residential program, or a combination of both. The type of treatment that is used will ultimately depend on the individual who is seeking treatment. Your primary focus should be on getting the addict to a point where he or she can live their life without addiction, and not on keeping them in the facility.
+Finally, you want to know what type of <a href="https://findtreatment.gov/">treatment</a>
+ are being used, whether it is an outpatient program a residential program, or a combination of both. The type of treatment that is used will ultimately depend on the individual who is seeking treatment. Your primary focus should be on getting the addict to a point where he or she can live their life without addiction, and not on keeping them in the facility.
 
 You will find that knowing these three things about the local rehab is important in determining if the rehab you are considering is the right one for you and your family. Knowing how effective the local rehab is will help you make a decision that will make a big difference in the outcome that you are looking for.
